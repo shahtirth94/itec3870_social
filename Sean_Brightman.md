@@ -1,6 +1,6 @@
 #Sean Brightman
 > When it is obvious that the goals can't be reached, don't adjust the goals, adjust the action steps
-<  Confucious
+>  - Confucious
 
 ##Favorite Food
 - Filipino Food
