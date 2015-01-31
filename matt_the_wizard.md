@@ -2,12 +2,12 @@
 ![How I got through college](https://cloud.githubusercontent.com/assets/8977392/5950658/2cb8ced4-a72b-11e4-9072-55d0fb4a919d.jpg)
 
 ###Favorite Food
-Thai Curry
-Pho Noodles 
-Ramen Noodles(The legit kind, not the stuff out of the pack)
-Hot and Spicy stir fry 
-Seafood and Chicken(Not big on red meat)
-Lots of fruit and vegetables, particularly strawberries and carrots
+*Thai Curry
+*Pho Noodles 
+*Ramen Noodles(The legit kind, not the stuff out of the pack)
+*Hot and Spicy stir fry 
+*Seafood and Chicken(Not big on red meat)
+*Lots of fruit and vegetables, particularly strawberries and carrots
 
 
 I love asian food since the day I was born. I am really into nutrition and eat lean white meat with lots of fruit and vegetables, not a lot of carbs. I have a hate relationship with butter, cheese, and sour cream. I used to weigh almost 300 pounds so that is why I choose the food lifestyle I live by today. I will never give up asian food though, whether its Thai, Hmong, Korean, Chinese, Japanese, does not matter. Not big on fried or greasy food either. 
@@ -20,11 +20,11 @@ My favorite game would have to be Dragon Age Inquisition. I love the choices the
 
 
 #Other random cool stuff about me
-I have a twin brother(my other half), and no twin telepathy is not real.
-I am gay (Surprise!)
-Favorite Quote by Benjamin Franklin "Beer is proof that god loves us and wants us to be happy"
-I completed my First Dan's Taekwondo Certification under the Kukkiwon(1st degree black belt)
-I do own a Gandalf tobacco pipe but I only smoke on very special occassions due to health risks. 
-I love to drink high gravity stouts and IPA's out of fancy stein mugs.
+*I have a twin brother(my other half), and no twin telepathy is not real.
+*I am gay (Surprise!)
+*Favorite Quote by Benjamin Franklin "Beer is proof that god loves us and wants us to be happy"
+*I completed my First Dan's Taekwondo Certification under the Kukkiwon(1st degree black belt)
+*I do own a Gandalf tobacco pipe but I only smoke on very special occassions due to health risks. 
+*I love to drink high gravity stouts and IPA's out of fancy stein mugs.
 
 
