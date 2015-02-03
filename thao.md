@@ -1,6 +1,6 @@
 ###Hi!!! This is Thao 
 
-![Meet again meme](http://elitedaily.com/wp-content/uploads/2012/07/funny-baba-haha-so-we-meet-again.jpg)
+![Meet again meme](https://cloud.githubusercontent.com/assets/8836789/6023597/97676422-ab93-11e4-8fac-d21b7b156c00.jpg)
 
 ###Favorite quote: 
 >“You've gotta dance like there's nobody watching, 
