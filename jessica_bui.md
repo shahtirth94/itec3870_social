@@ -1,3 +1,6 @@
+### Favorite Meme:
+![Happy Hour](http://memecrunch.com/meme/9OQ2/happy-hour/image.png)
+
 ### Favorite Foods:
 1. Takoyaki
 2. Ramen
