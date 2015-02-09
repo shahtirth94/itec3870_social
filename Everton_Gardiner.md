@@ -3,5 +3,5 @@
 
 
 #Favorite Movie:
-Anchorman 1 & 2 - I love the Anchorman series. Will Ferrel is hilarious :smiling_imp:
+Anchorman 1 & 2 - I love the Anchorman series. Will Ferrel is hilarious :laughing:
 
