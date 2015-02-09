@@ -4,7 +4,8 @@
 
 #Favorite Movie:
 
-Anchorman 1 & 2 - I love the Anchorman series. Will Ferrel is hilarious :laughing:
+Anchorman 1 & 2 - I love the Anchorman series. Will Ferrel is hilarious. 
+I think that his jokes and humor  :laughing:
 
 
 #Favorite Quote:
@@ -12,6 +13,8 @@ Life is really simple, but we insist on making it complicated.
 - Confucius
 
 #Favorite Food: 
+My favorite food is Shrimp pasta. I love shrimp pasta because I enjoy shrimp.
+Shrimp is the best food in the world :smile:
 
 
 #Favorite Game: 
