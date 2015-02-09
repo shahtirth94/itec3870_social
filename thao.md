@@ -26,6 +26,10 @@ My favorite foods are mostly Asian foods such as fried rice, rice cake, all kind
 
 Why? Maybe because I’m Asian. I have grown up with my mom’s dishes, and love everything she cooks. :heart:
 
+###Favorite Book:
+I like to read short stories, inspirational stories, stories about life, family, friends, that's why I really like Chicken Soup for the Soul.
+Another book that I read is The Unwanted: a Memoir of Childhood by Kien Nguyen. It made me tear up :sob:
+
 ###Favorite Movie: 
 There are so many movies that I like, but I will pick Harry Potter. </br>
 
