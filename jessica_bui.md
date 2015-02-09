@@ -6,13 +6,14 @@
 2. Ramen
 3. Pho
 
+I enjoy Asian food...this is probably because I am Asian.
+
 ### Favorite Game:
-I loke playing video games!  My favorite video game is **League of Legends** because I enjoy taking my fustrations out on other
-in a healthy way.
+I love playing MOBA video games!  My favorite video game is **League of Legends** because I enjoy taking my fustrations out on others in a healthy (legal) way.
 
 ###Favorite Movie:
 1.  Big Hero 6
 2.  Lion King
 3.  Wall-E
 
-###Favorite Meme:
+It's kind of obvious that I love Disney movies.  They make me smile, the songs are oddly addicting, and the art/animation is to me breath-taking.
