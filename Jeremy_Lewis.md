@@ -24,8 +24,8 @@
 * Baby octopus
 
 ### Meme
-![Image of Meme]
-(http://web-images.chacha.com/images/Gallery/6545/what-are-the-best-college-senior-memes-1660473233-jan-12-2014-1-600x400.jpg)
+![Image of Meme][meme]
+[meme]: http://web-images.chacha.com/images/Gallery/6545/what-are-the-best-college-senior-memes-1660473233-jan-12-2014-1-600x400.jpg "Meme"
 
 
 ### Favorite Movie
