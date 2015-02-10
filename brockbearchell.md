@@ -1,4 +1,4 @@
-###Welcome to the Wizard's House
+###Brocks Page
 ![How I got through college](http://contexts.org/files/2013/11/JAR-meme-drunk-baby.jpeg)
 
 ###Favorite Food
