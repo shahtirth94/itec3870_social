@@ -18,10 +18,12 @@
 ##Favorite Game
 Some games I really enjoy are all the Zelda games, and first person shooters such as Call of Duty and Halo.
 
+:computer:
+
 I have played some MMORPG games in the past such as Runescape and WOW, but they kind of died down for me.
 
 ##Favorite Movie
-So far my favorite movies are Inception, The Matrix Trilogy, and The Hobbit Movies. I also love Jim Carrey movies such as Dumb and Dumber, The Mask, Bruce Almighty, and Both Ace Ventura movies.
+So far my favorite movies are Inception, The Matrix Trilogy, and The Hobbit Movies. I also love Jim Carrey movies such as Dumb and Dumber, The Mask, Bruce Almighty, and Both Ace Ventura movies. :joy:
 
 
 
