@@ -21,4 +21,4 @@
 
 ### Video Instructions
 
-https://asciinema.org/a/16187
+[![asciicast](https://asciinema.org/a/16187.png)](https://asciinema.org/a/16187)
