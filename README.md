@@ -19,6 +19,10 @@
     `git pull --rebase upstream master`
 4. Send Pull Request by visiting your forked repo's Github page
 
+### Markdown Tutorial
+
+https://guides.github.com/features/mastering-markdown/
+
 ### Video Instructions
 
 [![asciicast](https://asciinema.org/a/16187.png)](https://asciinema.org/a/16187)
