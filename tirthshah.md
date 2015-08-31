@@ -1,8 +1,8 @@
 # tirth shah
-
+**Favorite Quote**
 >**Gandhi said that whatever you do in life will be insignificant.  But it's very important that you do it.  Because nobody else will.**
 
-[Ninjababy](http://giphy.com/gifs/baby-ninja-wbDIyxW1LXE5O)
+![Update Reminder](http://memeblender.com/wp-content/uploads/2013/03/reasons-you-update-your-software.png)
 
 Favorite Foods:
 * Indian food (Because it's delicious. Try it!)
